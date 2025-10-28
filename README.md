@@ -1,1 +1,1 @@
-# QuickShow
+In a post-appcalyptic world where cities ride on wheels and consume each other to survive, two people meet in London and try to stop a conspiracy.
